@@ -1,0 +1,2 @@
+# TRUTH-Seeker-
+ I purify my intention and be a good person for the sake of Allah?  Proper thinking and sincere devotion to the truth lead the person to be a good person obeying Allah, The Creator, The Most Merciful. All our needs, hopes and wishes are in His Hand and He is everything in our life here and hereafter.  “Allah does not wish to impose hardship upon you. Rather, He wishes to purify you; and to complete His blessings upon you; and in order that you may be thankful.” (Quran 5:6)
